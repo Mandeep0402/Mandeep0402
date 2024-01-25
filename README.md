@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **mandeepjaglan04@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Is-FiScfbfsFaqMeVbslhh_MhNexewhb/view?usp=sharing](https://drive.google.com/file/d/1Is-FiScfbfsFaqMeVbslhh_MhNexewhb/view?usp=sharing)
+- 📄 Know about my experiences [Mandeep_IIIT_Resume](https://drive.google.com/file/d/1Is-FiScfbfsFaqMeVbslhh_MhNexewhb/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
